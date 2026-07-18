@@ -33,4 +33,4 @@
 
 ### 📫 Reach me
 
-[Linkedin](www.linkedin.com/in/abraraamirsheikh)
+[Linkedin](https://www.linkedin.com/in/abraraamirsheikh/)
