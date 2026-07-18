@@ -33,4 +33,4 @@
 
 ### 📫 Reach me
 
-[GitHub](https://github.com/abrarbuilds)
+[Linkedin](www.linkedin.com/in/abraraamirsheikh)
